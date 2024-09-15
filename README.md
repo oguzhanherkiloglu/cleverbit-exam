@@ -1,1 +1,0 @@
-# cleverbit-exam
